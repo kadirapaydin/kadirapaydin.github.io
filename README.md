@@ -1,1 +1,0 @@
-# kadirapaydin.github.io
